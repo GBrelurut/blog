@@ -1,4 +1,4 @@
-L'une des grandes joies de la vie professionnelle, ce sont ces surprises qui savent vopus attendre alors que vous avez du retard suite à divers incidents sur votre ligne de métro.
+L'une des grandes joies de la vie professionnelle, ce sont ces surprises qui savent vous attendre alors que vous avez du retard suite à divers incidents sur votre ligne de métro.
 Aujourd'hui, c'est un sachet de chouquettes délicieusement offertes par une collègue.
 J'en ai déjà pioché quelques unes, et me vient à l'esprit que les bouchées avalées se ressentiront sur ma ligne. 
 Et dans le fol espoir d'estimer ma prise de poids, j'en viens à me demander quel est le poids moyen d'une chouquette de cette enseigne parisienne ?
